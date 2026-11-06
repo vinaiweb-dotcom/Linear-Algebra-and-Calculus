@@ -19,8 +19,8 @@ https://www.amazon.com/dp/B0HLVYL37G
 https://www.amazon.com/dp/B0HLWC45KD
 
 9798178637906
-[Calculus_Linear_Algebra_Book_Promo.pptx](https://github.com/user-attachments/files/34456751/Calculus_Linear_Algebra_Book_Promo.pptx)
-<img width="1308" height="2080" alt="calculas64" src="https://github.com/user-attachments/assets/383394ad-e5b8-4d4a-bc37-24ffdb4f3604" />
+<img width="3929" height="6250" alt="calculus300" src="https://github.com/user-attachments/assets/b5f2bca7-9872-4bc4-894a-314e41a42022" />
+
 
 
 . 
